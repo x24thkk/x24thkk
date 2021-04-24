@@ -1,2 +1,2 @@
 About Me.
-Nothing can stop us from moving forward!
+Nothing can stop me from moving forward!
